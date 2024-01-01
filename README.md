@@ -1,0 +1,2 @@
+# Fiskos
+Farkederse kahrolayım
